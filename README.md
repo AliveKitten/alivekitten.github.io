@@ -1,0 +1,2 @@
+# Doomer manifesto
+
